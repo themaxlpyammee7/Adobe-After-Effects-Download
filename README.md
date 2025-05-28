@@ -1,5 +1,3 @@
-```markdown
-
 # Adobe After Effects | Create Stunning Visual Effects with Ease! 🎨✨🚀
 
 
